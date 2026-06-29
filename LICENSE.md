@@ -1,4 +1,4 @@
-#  
+#  Experience hooked like never before with hooked underground Script, the #1 Script. Includes instant win and infinite resources for unbeatable
 
 
 
